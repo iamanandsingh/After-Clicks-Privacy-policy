@@ -1,1 +1,0 @@
-# After-Clicks-Privacy-policy
